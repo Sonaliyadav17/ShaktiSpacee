@@ -79,7 +79,7 @@ It’s not just an app — it’s a movement towards strength, self-care, and si
 ---
 
 ## 📸  
-💻 Live at  https://sonaliyadav17.github.io/ShaktiSpace/
+💻 Live at  https://sonaliyadav17.github.io/ShaktiSpacee/
 
 ---
 
