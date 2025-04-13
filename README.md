@@ -1,4 +1,4 @@
-# 🌸 ShaktiSpace
+# 🌸 ShaktiSpace 🌸
 
 *Your sanctuary for holistic health, embracing both mental and physical wellness for every woman.*  
 “Begin your journey to balance, healing, and empowerment.”
