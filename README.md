@@ -86,7 +86,7 @@ It’s not just an app — it’s a movement towards strength, self-care, and si
 ## 🙌 Let's Connect
 
 Want to contribute or collaborate? Reach out!  
-Made with 💖 by *Team ShaktiSpace*
+Made *Team ShaktiSpace*
 
 ---
 
